@@ -40,5 +40,4 @@ Ability to transfer control from the top of the hierarchy to the bottom
 
 
 ## 4. Presentation PowerPoint
-Link: [Presentation PPT](https://docs.google.com/presentation/d/1_GTy7ezNXiKt1Yvr9kiC-tUadY6Fd-EU/edit?usp=sharing&ouid=109010532512400109012&rtpof=true&sd=true)
-
+Please request me by email if needed (yrs1107@gmail.com) 
